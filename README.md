@@ -1,1 +1,0 @@
-# melhor-script-sab
